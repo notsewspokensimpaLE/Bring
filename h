@@ -2,7 +2,7 @@
 c??'
 $600cd25600
 l7200
-
+PLEASE
 401+5	lol(●'◡'●) msn
 separation command center barycentre
 1
@@ -11,3 +11,6 @@ separation command center barycentre
 101
 100
 200
+bbybby
+20
+	##
